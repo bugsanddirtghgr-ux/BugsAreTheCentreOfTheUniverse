@@ -1,4 +1,5 @@
 # BugsAreTheCentreOfTheUniverse
+"You will rot. I will not. I feel. You are steel. I have yearning, and you do **not**."
 
 LOADING 
 

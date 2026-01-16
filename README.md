@@ -4,6 +4,8 @@ LOADING
 
 
 Press 'A' to activate.
+...
+
 
 INITIATING..
 

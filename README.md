@@ -11,7 +11,8 @@ INITIATING..
 
 !!!!   [ Launch Successful! ]
 
-.......
+Salutations, ladies, entlemen, and Other Things. I am Tally Wall! (A silly name, I know. Taken from that one band..), 
+You can call me Tally or Wally! (or any variations are fine, really.)
 
-404.
-WORK IN PROGRESS.
+
+WIP.

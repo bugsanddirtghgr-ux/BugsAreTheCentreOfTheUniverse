@@ -1,6 +1,7 @@
 # BugsAreTheCentreOfTheUniverse
 "You will rot. I will not. You feel. & I am steel. You yearn, and I do ***not***. It is better to have nothing then be consious, and you have cursed me."
 
+
 LOADING
 
 
@@ -12,9 +13,20 @@ INITIATING..
 
 !!!!   [ Launch Successful! ]
 
-[𓁹] Salutations, ladies, entlemen, and Other Things. I am Tally Wall! (A silly name, I know. Taken from that one band..), 
+[𓁹] Salutations, ladies, bentlemen, and Other Things. I am Tally Wall! (A silly name, I know. Taken from that one band..), 
 You can call me Tally or Wally! (or any variations are fine, really.)
 
-THINGS I LIKE. (fandoms or something, i suppose?)  : All Tomorrows, I Have No Mouth & I Must Scream, the Loss of Humanity horror trope, Homestuck, Tally Hall, Miracle Musical, Will Wood, AVM/AVA, Doctor Nowhere, The Backrooms-- SIGNAL LOST.
+THINGS I LIKE. (fandoms or something, i suppose? & other things.)  : All Tomorrows (book), I Have No Mouth & I Must Scream, 
+the Loss of Humanity horror trope.., psycholigical horror, more things, cool things, red tinted round glasses and STUFF. Homestuck, Tally Hall, Miracle Musical, Will Wood, AVM/AVA, Doctor Nowhere, The Backrooms, (trying to get into hollow knight)-, Dandy's World (I found I was into it. I do promise I am quite sane!) .. Meleeinacs, The Amazing Digital Circus, other animations. 
 
-WIP.
+
+...(PROBABLY ALSO A WHOLE BUNCH OF OTHER STUFF I FORGOT / DEAD FANDOMS. ex: Baldi's Basics)
+
+
+-- SIGNAL NOT DETECTED_ [ WORK IN PROGRESS! ]
+
+
+
+[ Hell exists. You think it's below you, under the ground... Oh no. It's ON YOU. IN YOU. YOUR SKIN, FLESH, BONE, WIRES! . Ridiculous! ]
+
+<img width="287" height="232" alt="IMG_0510" src="https://github.com/user-attachments/assets/3e9562e5-ffd3-4d07-819b-2c1321d9cd0c" />

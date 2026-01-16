@@ -12,6 +12,7 @@ INITIATING..
 
 !!!!   [ Launch Successful! ]
 
-Salutations, ladies, entlemen, and Other Things. I am Tally Wall! (A silly name, I know. Taken from that one band..), 
+[𓁹] Salutations, ladies, entlemen, and Other Things. I am Tally Wall! (A silly name, I know. Taken from that one band..), 
 You can call me Tally or Wally! (or any variations are fine, really.)
-width="320" height="308" alt="IMG_0508" src="https://github.com/user-attachments/assets/2633e38c-a9fc-4669-932d-11f840868d59" />
+
+THINGS I LIKE. (fandoms or something, i suppose?)  : All Tomorrows, I Have No Mouth & I Must Scream, the Loss of Humanity horror trope, Homestuck, Tally Hall, Miracle Musical, Will Wood, AVM/AVA, Doctor Nowhere, The Backrooms, 

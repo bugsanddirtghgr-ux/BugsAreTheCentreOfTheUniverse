@@ -1,5 +1,13 @@
 # BugsAreTheCentreOfTheUniverse
 
-404 -- ERROR. ERROR.
+LOADING 
 
-WORK! IN! POGRESS! 
+
+Press 'A' to activate.
+
+INITIATING..
+
+!!   [ FATAL_ERROR_DETECTED ]
+
+404.
+WORK IN PROGRESS.

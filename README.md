@@ -19,6 +19,8 @@ INITIATING..
 You can call me Tally or Wally! (or any variations are fine, really.)
 
 <img width="177" height="192" alt="2026_01_16_04i_Kleki" src="https://github.com/user-attachments/assets/2043ebbf-ce9c-4edc-8912-a9277cd1c948" />
+[ Metamorphisis. ].    [ FTM ]
+
 
 .....
 ***trans flag slowOOOOOOOly slides in***

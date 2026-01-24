@@ -26,7 +26,7 @@ You can call me Tally or Wally! (or any variations are fine, really.)
 ***trans flag slowOOOOOOOly slides in***
 
 THINGS I LIKE. (fandoms or something, i suppose? & other things.)  : All Tomorrows (book), I Have No Mouth & I Must Scream, 
-the Loss of Humanity horror trope.., psycholigical horror, more things, cool things, red tinted round glasses and STUFF. Homestuck, Tally Hall, Miracle Musical, Will Wood, AVM/AVA, Doctor Nowhere, The Backrooms, (trying to get into hollow knight)-, Dandy's World (I found I was into it. I do promise I am quite sane! ) .. Meleeinacs, The Amazing Digital Circus, other animations. 
+the Loss of Humanity horror trope.., psycholigical horror, more things, Homestuck, Tally Hall, Miracle Musical, Will Wood, AVM/AVA, Doctor Nowhere, The Backrooms, (trying to get into hollow knight)-, Dandy's World.. Meleeinacs, The Amazing Digital Circus, other stuff I forgot
 
 
 ...(PROBABLY ALSO A WHOLE BUNCH OF OTHER STUFF I FORGOT / DEAD FANDOMS. ex: Baldi's Basics)

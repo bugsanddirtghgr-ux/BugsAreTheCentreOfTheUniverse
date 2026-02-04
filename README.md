@@ -9,9 +9,7 @@ LOADING
 
 Press any key to activate._
 
-...
-
-INITIATING..
+INITIATING
 
 !!!!   [ Launch Successful! ]
 
@@ -19,7 +17,7 @@ INITIATING..
 You can call me Tally or Wally! (or any variations are fine, really.)
 
 <img width="177" height="192" alt="2026_01_16_04i_Kleki" src="https://github.com/user-attachments/assets/2043ebbf-ce9c-4edc-8912-a9277cd1c948" />
-[ Metamorphisis. ].    [ FTM ]
+[ Metamorphisis. FTM! ]
 
 
 .....
@@ -32,10 +30,8 @@ the Loss of Humanity horror trope.., psycholigical horror, more things, Homestuc
 ...(PROBABLY ALSO A WHOLE BUNCH OF OTHER STUFF I FORGOT / DEAD FANDOMS. ex: Baldi's Basics)
 
 
--- SIGNAL NOT DETECTED_ [ WORK IN PROGRESS! ]
-
-
-
-[ Hell exists. You think it's below you, under the ground... Oh no. It's ON YOU. IN YOU. YOUR SKIN, FLESH, BONE, WIRES! . Ridiculous! ]
+-- And you can also cuddle with me. I don't mind!
+I don't know what else I'm suppoed to put here.
+Say hi to Mr. Eyeball.
 
 <img width="287" height="232" alt="IMG_0510" src="https://github.com/user-attachments/assets/3e9562e5-ffd3-4d07-819b-2c1321d9cd0c" />
